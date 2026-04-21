@@ -12,3 +12,4 @@ https://www.youtube.com/@DavesAutoCenterCenterville
 - [GM Lost a BILLION Dollars Because of THIS Engine!](https://youtu.be/zglEmlYAu04)
 - [His THIRD Engine Wouldn’t Even START… Can We Get It Running?](https://youtu.be/Nds1zGZVeEE)
 - [We Came To Pick Up a RANDY'S Transmission… Stayed for a FULL Shop Tour!](https://youtu.be/lVQEzlatbF0)
+- [His Grandfather Bought It NEW… Now We’re Keeping It ALIVE!](https://youtu.be/sf4gA9WF_1Q)

@@ -5,6 +5,7 @@ https://www.youtube.com/@DavesAutoCenterCenterville
 # Favorite:
 ## Antique Ford Truck
 - [His Grandfather Bought It NEW… Now We’re Keeping It ALIVE!](https://youtu.be/sf4gA9WF_1Q)
+- [You Won’t Believe What We Found! Inside the 900,000-Mile Engine](https://youtu.be/vsJaT7V9ItE)
 
 # Index:
 - [This PERFORMANCE Raptor Engine FAILED on the FIRST START!](https://youtu.be/Dr1-JE4Uj8o)
@@ -20,3 +21,7 @@ https://www.youtube.com/@DavesAutoCenterCenterville
 - [Did This DEALER Try to SCAM Him With a $15,000 Engine He DIDN’T Need?!](https://youtu.be/VGDQfC5qSMY)
 - [They RUINED His Engine… Now He Wants Us to UN-DELETE It?!](https://youtu.be/QjORbiUOc9k)
 - [We Built This Engine… Now It's POURING Oil!](https://youtu.be/T6HoIK-h-bc)
+- [My Idol of 50 YEARS Walked Into My Shop… Gale BANKS Himself!](https://youtu.be/z_3IaMmcq5Y)
+- [I Haven’t Worked on One of These in 40 YEARS… Can I Still Fix It?](https://youtu.be/AhT0veEWqZQ)
+- [Did Burning Man KILL This 1993 Ford Ranger?](https://youtu.be/WIqaxk1CrwY)
+- [Every Shop FAILED to Fix This Camaro… Can We Do It?](https://youtu.be/iRhCct9jqH8)

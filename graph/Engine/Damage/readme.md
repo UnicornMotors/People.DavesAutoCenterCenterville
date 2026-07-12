@@ -1,2 +1,6 @@
 - [This Shop’s ONE Simple Mistake DESTROYED a Perfectly Good Engine!](https://youtu.be/tknaPcbSFBg)
 - [One Simple Mistake DESTROYED a Perfect 78K Mile Engine! (Part 2)](https://youtu.be/oThYVmDKz2w)
+- [This 10¢ Part COST Him a $35,000 Engine!](https://youtu.be/wI5mzKmE4IY)
+- [His $40,000 Duramax Engine SEIZED After 6,000 Miles… Now They're Trying to SCAM Him!](https://youtu.be/myuJps0Cq1o)
+- [They Got SCAMMED by a Shop… Now It Needs a HEAD GASKET!](https://youtu.be/zexGesoTKGE)
+- 

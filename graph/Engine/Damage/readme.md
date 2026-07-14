@@ -6,3 +6,4 @@
 - [We Built This 6.7 Powerstroke… Then It Came Back Blown Up](https://youtu.be/JA8jDrEufOw)
 - [They RUINED His Engine… Now He Wants Us to UN-DELETE It?!](https://youtu.be/QjORbiUOc9k)
 - [This Is His SECOND Engine That SNAPPED the Crankshaft in HALF!](https://youtu.be/FqpaO4THA3U)
+- [4,000 Miles After Buying It... Turned Into a KNOCKING NIGHTMARE!](https://youtu.be/71uAMdB-nPw)

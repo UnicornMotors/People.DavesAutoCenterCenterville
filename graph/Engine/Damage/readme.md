@@ -4,3 +4,5 @@
 - [His $40,000 Duramax Engine SEIZED After 6,000 Miles… Now They're Trying to SCAM Him!](https://youtu.be/myuJps0Cq1o)
 - [They Got SCAMMED by a Shop… Now It Needs a HEAD GASKET!](https://youtu.be/zexGesoTKGE)
 - [We Built This 6.7 Powerstroke… Then It Came Back Blown Up](https://youtu.be/JA8jDrEufOw)
+- [They RUINED His Engine… Now He Wants Us to UN-DELETE It?!](https://youtu.be/QjORbiUOc9k)
+- [This Is His SECOND Engine That SNAPPED the Crankshaft in HALF!](https://youtu.be/FqpaO4THA3U)

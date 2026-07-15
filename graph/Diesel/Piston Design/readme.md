@@ -1,0 +1,1 @@
+- [Duramax, Cummins and Power stroke Diesel Engine piston design](https://youtu.be/cXlAZX0H0JI)
